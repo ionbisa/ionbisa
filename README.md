@@ -1,4 +1,4 @@
-![satu](https://user-images.githubusercontent.com/28453362/159211080-0b85722d-e94d-40d2-9f8d-9c80a863187b.jpg)
+
 
 
 <h1 align="center">Hi 👋, I'm Ionbisa</h1>
